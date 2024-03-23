@@ -7,3 +7,7 @@
     <img height="300" src="https://i.imgur.com/zJvNd7c.jpeg">
   </a>
 </p>
+
+# Note : Account Generator Is Not free 🪧
+
+# If Any Help Want Msg Me On Tg @xax_ha_ha_l
