@@ -10,4 +10,4 @@
 
 # Note : Account Generator Is Not free 🪧
 
-# If Any Help Want Msg Me On Tg @nibrasbadush
+# If Any Help Want Msg Me On Tg @nibrasbadusha  or  @xax_ha_ha_l
