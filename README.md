@@ -10,4 +10,4 @@
 
 # Note : Account Generator Is Not free 🪧
 
-# If Any Help Want Msg Me On Tg @oggy_workshop  or  @jerryfromrussian
+# If Any Help Want Msg Me On Tg https://t.me/oggy_workshop  or  https://t.me/jerryfromrussian
